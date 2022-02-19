@@ -1,4 +1,4 @@
-## Hello everyone, i want to tell you a little about me 
+## Hello everyone, i want to tell you a little about myself 
 
 - I am an Experienced Engineering Technician, always ready to acquire more technical knowledge and professional skills. 
 Skilled in Electrical Wiring, Electrical Drawing, Industiral and Domestic maintenance and installations, Microsoft 
